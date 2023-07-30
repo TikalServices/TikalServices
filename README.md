@@ -6,12 +6,8 @@ Welcome to Tikal's services provided by Sonic the Dev.
 
 In TIKAL'S PALACE, we have Blaze the Cat and TIKAL versions of the Sonic Music bots. You can listen to the best Sonic Music in voice channels with this bots in the Discord server.
 
+Not only that we also make TikalService's based games and mods like TIKAL OS and TIKAL's BASICS
+
 Join [Tikal's Palace](https://discord.gg/5jKN6kfAyf) on Discord.
 
-Subscribe to the [Tikal's Services Youtube Channel](https://www.youtube.com/channel/UC6vNUcFhQNNC6rLLN-383QA).
-
-Follow the [Tikal's Services Twitter](https://twitter.com/TikalServices).
-
-Follow [Tikal's Services Instagram](https://www.instagram.com/tikalservices/).
-
-Check out the [Tikal's Services Reddit Account](https://www.reddit.com/user/tikalservices).
+[Tikal's Services Youtube Channel](https://www.youtube.com/channel/UC6vNUcFhQNNC6rLLN-383QA) | [Tikal's Services Twitter](https://twitter.com/TikalServices) | [Tikal's Services Instagram](https://www.instagram.com/tikalservices/) | [Tikal's Services Reddit Account](https://www.reddit.com/user/tikalservices) | [Tikal's Services Gamejolt](https://gamejolt.com/@TikalServices) | [Tikal's Services TikTok](https://www.tiktok.com/@tikalservices)
